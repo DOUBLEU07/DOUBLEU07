@@ -1,6 +1,8 @@
+### AWAKEN CITY
+Facebook : [Awaken City](https://www.facebook.com/Awakencityy)
+Discord : [Awaken City](discord.gg/3kVvpJMEv3)
 
-
-### Contract Me 📫
+### Contact Me 📫
 :e-mail: : focus_041158@hotmail.com
 
 Facebook : [Focus Boonsong](https://www.facebook.com/focustanaphat)
